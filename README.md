@@ -1,4 +1,4 @@
-![](https://i.gyazo.com/95c16e481bc92b8752172c3c576846b0.gif)
+![](https://gyazo.com/4e91216b57628ad1a4b0240d159d024c.png)
 
 ## Motion Piano
 
